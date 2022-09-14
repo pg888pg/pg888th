@@ -2,7 +2,7 @@
 <html>
 <body>
 
-<FONT SIZE=5><B><a href="https://pg888th.bet/">สล็อต pg</a><B></FONT>
+<FONT SIZE=20><B><a href="https://pg888th.bet/">สล็อต pg</a><B></FONT>
 
 </body>
 </html>
